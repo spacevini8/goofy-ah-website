@@ -13,3 +13,5 @@ it's my first website, so be nice
 I'll accept any suggestions
 
 kinda sus
+
+##The domain is: spacevini8.n0budget.com
