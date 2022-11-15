@@ -14,4 +14,4 @@ I'll accept any suggestions
 
 kinda sus
 
-##The domain is: spacevini8.n0budget.com
+## The domain is: spacevini8.n0budget.com
